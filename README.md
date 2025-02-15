@@ -8,7 +8,7 @@
 
 📫 You can reach me on **adarshofficial268@gmail.com**
 
-🌍 Visit My Portfolio https://adarshr268.github.io/portfolio/
+🌍 Visit My Portfolio https://adarshr268.github.io/
 
 Explore My Repositories and Look into My projects !!
 
